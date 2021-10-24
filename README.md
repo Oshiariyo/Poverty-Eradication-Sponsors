@@ -1,0 +1,2 @@
+# Poverty-Eradication-Sponsors
+To create environment free of wants, disases, ignorance, poverty and insecurity, Al community stakeholders must join hands to help the less privileged people in n our society to live above poverty level. This is the concept of this repository  As poverty does not recognize race, religion, creed and and nation. Most especially, in the developing countries poverty has reduced human dignity and value thwreby created g environment of insecurity and criminalities of different dimensions.
